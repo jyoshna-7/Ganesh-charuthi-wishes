@@ -1,1 +1,1 @@
-# Ganesh-charuthi-wishes
+# Ganesh-Chaturthi-Wishes
